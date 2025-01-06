@@ -1,3 +1,3 @@
 The Avengers
 
-![SignUp Page](https://github.com/user-attachments/assets/a38901a3-06f3-4ded-8c9a-ddb0c3bb3bc8)
+![The Avengers](https://github.com/user-attachments/assets/3dcb69c6-6782-435c-a4a0-5b8d3af7e1d3)
